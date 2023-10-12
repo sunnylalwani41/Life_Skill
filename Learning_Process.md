@@ -1,1 +1,2 @@
 1. Feynman Technique: To understand things better, we have to tech someone step by step in simple words.
+2. 
