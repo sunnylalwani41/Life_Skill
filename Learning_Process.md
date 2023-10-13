@@ -10,3 +10,9 @@
    ii. Learn enough to correct yourself.
    iii. Remove barrier like- internet, notification ...
    iv. All over 20 hours Deliberate practice i.e. 45 minutes daily.
+
+5. There are some option to improve learning process:
+      i. Focus of mind
+      ii. Remove barrier
+      iii. Follow Deadline
+      iv. Teach to someone.
