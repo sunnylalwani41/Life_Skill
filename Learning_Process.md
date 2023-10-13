@@ -4,3 +4,9 @@
 3. Mind has 2 modes.
    i. Active/Focus mode: When mind is focusing on something.
    ii. Diffused mode: When mind`s nurvous is at relaxed state.
+
+4. There are following 4 steps to approaching new topic:
+   i. The whole topic should be divide into smaller parts.
+   ii. Learn enough to correct yourself.
+   iii. Remove barrier like- internet, notification ...
+   iv. All over 20 hours Deliberate practice i.e. 45 minutes daily.
