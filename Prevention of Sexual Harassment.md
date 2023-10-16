@@ -12,7 +12,29 @@
 **Ans** 
 
 1. In this case, my first responsibility is to report to the nearest police station and file an FIR against the culprit.
-2. I would politely behave towards victim and support her in that situation.
+2. I would politely behave towards the victim and support her in that situation.
 3. I will ensure that she will come case fight against it.
-4. Support by money, if require.
+4. Support by money, if required.
 
+## Q3. Explains different scenarios enacted by actors.
+**Ans**
+
+1. **Between Co-Worker**:
+     I. When her co-worker comments/whistles on her dress.
+   II. Showing offense posters.
+     
+3. **Manager and employee**:
+   I. Showing our sexual feelings.
+   II. Hug and touch without consent.
+   III. Her focus on him to come in relation.
+5. **For work favour**:
+   I. To obtain the work, she shows sexual attraction towards him.
+
+## Q4. How to handle cases of harassment?
+**Ans**
+
+If any harassment is there, then we need to complain in the organization`s hierarchy 
+1. Supervisor
+2. Senior Supervisor
+3. Manager
+4. HR
