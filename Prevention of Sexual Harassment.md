@@ -38,3 +38,10 @@ If any harassment is there, then we need to complain in the organization`s hiera
 2. Senior Supervisor
 3. Manager
 4. HR
+
+## Q5. How to behave appropriately?
+**Ans**
+1. We do not say to her.
+2. We behave with her like mother and sister.
+3. Do not comment on her cloth.
+4. Do good behave and respect her.
