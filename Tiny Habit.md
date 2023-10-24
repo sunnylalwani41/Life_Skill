@@ -23,3 +23,7 @@ After completion of a habit, we need to celebrate because our mind's motivation 
 ### 4 In this video, what was the most interesting story or idea for you?
 
 **Ans.**
+To adopt a new habit, improve themself towards that habit by 1% each day, and this requires a proper strategy.
+
+
+### 5 What is the book's perspective about Identity?
