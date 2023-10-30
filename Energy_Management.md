@@ -39,3 +39,8 @@
 5. Delaying Brain Aging
 
 ### 7 What are some steps you can take to exercise more?
+**Ans.**
+1. Fixed the time for exercise.
+2. Gym
+3. Meditation
+4. Yoga
