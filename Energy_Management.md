@@ -31,5 +31,11 @@
 4. Do not take tension or stress.
 
 ### 6 Paraphrase the video - Brain Changing Benefits of Exercise. Minimum 5 points, only the points.
+**Ans.**
+1. Improved Cognitive Function
+2. Enhanced Neuroplasticity
+3. Reduced Stress and Anxiety
+4. Boosted Mood and Confidence
+5. Delaying Brain Aging
 
 ### 7 What are some steps you can take to exercise more?
