@@ -11,5 +11,11 @@ Deep Work: Rules for Focused Success in a Distracted World," refers to the abili
 5. Daily do deep work as well as shallow work.
 
 ### 3 How can you implement the principles in your day to day life?
-**Ans.**
+**Ans.** We can implement deep work principle in our life by following ways:
+1. By make a schedule for work and other activity.
+2. Daily do deep work and also shallow work.
+3. Focus on the work.
 
+### 4 What are the dangers of social media, in brief?
+**Ans.**
+Social media is one of the measure distraction thing in our life. It is distract the focus on the work and also damage our mind.
